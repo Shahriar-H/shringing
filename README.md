@@ -1,2 +1,2 @@
 # shringing
-https://shahriar-h.github.io/
+https://shahriar-h.github.io/shringing
